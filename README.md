@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Xander-TheCoder
+- 👀 I’m interested in technology and coding.
+- 🌱 I’m currently learning how to code microbits.
+- 💞️ I’m looking to collaborate with my friend from school
+- 📫 Reach me at ...
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am very kind unless you're mean to me then i'll roast you.
